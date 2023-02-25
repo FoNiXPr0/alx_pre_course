@@ -1,1 +1,1 @@
-The Project will be updated on 15MAR
+The Project will be updated in 15MAR
